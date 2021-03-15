@@ -1,4 +1,4 @@
-# Depeng's Sweet Homepage 
+# Depeng's Homepage 
 Now you have found Depeng's online sweet home!
 
 ## About Depeng
