@@ -37,7 +37,7 @@ Now, as a student who majored in Arts of Literature, Depeng study hard in all ki
 
 With your help, maybe his dream will come true one day.
 
-## Why Depeng Loves Ubisoft Shanghai
+## Why Depeng Loves Shanghai
 The city with cyberpunk style.
 
 The precious pearl of China.
