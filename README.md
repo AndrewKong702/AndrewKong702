@@ -26,7 +26,7 @@ It doesn't matter, Depeng always play the games that his friends of the same age
 
 But it couldn't stopped him, even without friends who played together with him, Depeng, as a single player, encountered one of the most important person in his life
 
--- Ezio Auditore da Firenze, in Assassin's Creed II, and Ezio brought him into a all brand new world, and he made more friends in the games from Ubisoft, even more than the number in the reality.
+-- Ezio Auditore da Firenze, in Assassin's Creed II, and Ezio brought him into a all brand new world, and he made more friends in the games, even more than the number in the reality.
 
 However, it was just a beginning.
 
@@ -35,7 +35,7 @@ He read books about how to design a programme on the computer, though he couldn'
 
 He learned history and literature about all the civilizations, ohhh, that's much easier! Maybe he could be a game scriptwriter! LOL!
 
-He bought "The Game Production Handbook" which was commended by official account of Ubisoft on WeChat, and he learned a lot from that.
+He bought "The Game Production Handbook" which was commended by a HR on WeChat, and he learned a lot from that.
 
 He subscribed the GDC channel on YouTube, watched videos and learned how to design a video game that attracts every game player. That's cool.
 
