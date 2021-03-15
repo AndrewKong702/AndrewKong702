@@ -1,10 +1,5 @@
 ### Hi, this is Depeng's sweet homepage!
 
-<!--
-**AndrewKong702/AndrewKong702** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on my graduation thesis.
 - 🌱 I’m currently learning new computer skills.
 - 👯 I’m looking to collaborate on learning together.
