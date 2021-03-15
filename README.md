@@ -2,7 +2,7 @@
 Now you have found Depeng's online sweet home!
 
 ## About Depeng
-Depeng is a serious and humorous young gay, sorry, a guy who majored in Chinese Language and Literature. But his hobby is not just his major "Literature".
+Depeng is a serious but humorous young gay, sorry, a guy who majored in Chinese Language and Literature. But his hobby is not just his major "Literature".
 
 In 2003, Depeng got his first computer when he was a 5-year-old little boy, and he has been explored on the Internet for over 18 years. 
 
