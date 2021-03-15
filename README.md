@@ -38,7 +38,11 @@ Now, as a student who majored in Arts of Literature, Depeng study hard in all ki
 With your help, maybe his dream will come true one day.
 
 ## Why Depeng Loves Ubisoft Shanghai
-The city with cyberpunk style, the precious pearl of China, the Paris in the mysterious Eastern.
+The city with cyberpunk style.
+
+The precious pearl of China.
+
+The Paris in the mysterious Eastern.
 
 And the Ubisoft whom Depeng fall in love with.
 
