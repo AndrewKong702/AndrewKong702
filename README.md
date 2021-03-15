@@ -41,16 +41,7 @@ He subscribed the GDC channel on YouTube, watched videos and learned how to desi
 
 Now, as a student who majored in Arts of Literature, Depeng study hard in all kinds of computer skills, dreaming of to be a game scriptwriter or designer.
 
-With your help, maybe his dream will come true one day.
-
-## Why Depeng Loves Shanghai
-The city with cyberpunk style.
-
-The precious pearl of China.
-
-The Paris in the mysterious Eastern.
-
-And the Ubisoft whom Depeng fall in love with.
+With your help, maybe his dream will come true onel in love with.
 
 ## Contact Depeng
 If you would like to provide him an offer. Thank you!
