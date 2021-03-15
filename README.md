@@ -28,10 +28,11 @@ He subscribed the GDC channel on YouTube, watched videos and learned how to desi
 Now, as a student who majored in Arts of Literature, Depeng study hard in all kinds of computer skills, dreaming of to be a game scriptwriter or designer.
 With your help, maybe his dream will come true one day.
 
-## Why Depeng Loves Shanghai
+## Why Depeng Loves Ubisoft Shanghai
 The city with cyberpunk style, the precious pearl of China, the Paris in the mysterious Eastern.
 And the Ubisoft whom Depeng fall in love with.
 
-## Contact Depeng, if you would like to provide him an offer. Thank you!
+## Contact Depeng
+If you would like to provide him an offer. Thank you!
 Email:2533204874@qq.com
 Phone:(+86)13940538859, also WeChat.
