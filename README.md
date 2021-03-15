@@ -14,7 +14,7 @@ The first game he played on PC is ...
 
 1. Type the Letter "H" when you playing the game 
 
-2. 1,000,000,000 points you've got! Surprise! Σ(っ°Д°;)っ
+2. 1,000,000,000 points you've got! Surprise! 
 
 **Sorry** Just a joke o(>ω<)o
 
@@ -48,8 +48,8 @@ Now, as a student who majored in Arts of Literature, Depeng study hard in all ki
 
 With your help, maybe his dream will come true one day.
 
-## Contact Depeng, please
-If you would like to provide him an offer. Thank you very much!
+## Contact Depeng
+If you would like to provide him an offer,please!Σ(っ°Д°;)っ Thank you very much!
 
 Email:2533204874@qq.com
 
