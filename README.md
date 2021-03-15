@@ -33,7 +33,7 @@ Depeng made more friends in the games than by reality.
 
 However, it was just a beginning.
 
-## The Way To Become a Game Producer
+## The Way To Becoming a Game Producer
 It was not enough just played games, he wanted to made games.
 
 He read books about how to design a programme on the computer, though he couldn't understand the 'Hecker's Codes' written by programmers, just like in the game "Watch Dogs".
